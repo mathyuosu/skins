@@ -1,5 +1,3 @@
-# skins
-
 # [mathyu](https://osu.ppy.sh/users/6303313) skins
 
 # [pewdekz ar11](https://puu.sh/JYH1i/6886da43af.osk)
