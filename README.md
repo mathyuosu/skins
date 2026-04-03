@@ -1,6 +1,6 @@
 # [mathyu](https://osu.ppy.sh/users/6303313) skins
 
-# last updated 4/3/2026
+last updated 4/3/2026
 
 # [pewdekz ar11](https://nenebestgirl.s-ul.eu/cV8PnYer)
 ![screenshot5656](https://github.com/mathyuosu/skins/assets/156494185/7f79cc4a-bfba-4687-bccd-146c4ac5b02d)
