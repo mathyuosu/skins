@@ -20,10 +20,12 @@ last updated 4/3/2026
 # [gambler ez](https://nenebestgirl.s-ul.eu/SmFbnGJQ)
 ![screenshot5719](https://github.com/mathyuosu/skins/assets/156494185/1135cae0-6865-442c-b8c1-bad4615c5231)
 
+# [myu cinnamoroll mania](https://nenebestgirl.s-ul.eu/SODrtdbJ)
+![screenshot6130](https://github.com/user-attachments/assets/3c7c753b-9396-4ae1-bc80-5d19c414eb55)
+
 # [awawaw myuka taiko](https://nenebestgirl.s-ul.eu/ScApkpcF)
 ![screenshot5723](https://github.com/mathyuosu/skins/assets/156494185/1c2d09e0-297e-40fa-8c4b-e0d128589071)
 
-# [myu cinnamoroll mania](https://nenebestgirl.s-ul.eu/SODrtdbJ)
-![screenshot6130](https://github.com/user-attachments/assets/3c7c753b-9396-4ae1-bc80-5d19c414eb55)
+
 
 
